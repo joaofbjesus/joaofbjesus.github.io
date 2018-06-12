@@ -1,3 +1,3 @@
-## Welcome to online home!
+## Welcome to my online home!
 
 Here you will find my thoughts about pretty much everything.
